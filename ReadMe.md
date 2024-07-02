@@ -161,26 +161,5 @@ https://dove.589669.xyz/subfilter?sub=订阅链接(urlencode)&filter=正则参�
 
 
 
-### 0⃣️ 请咖啡☕️名单
-
-🙏感谢🙏   - - -  **如果觉得有用，请大胆请喝咖啡☕️**
-=======
-- 鸡儿硬梆梆
-- 🐔哥｜法外 伉俪
-- 旺仔弟| 旺仔哥
-- 守夜人
-- Big Cat
-- Xin
-- 锄禾
-- 弥彦
-- Miao ~ socloud
-- 非主流 李克斯 关下门
-- yumemi
-- Zealson
-- 布
-- 好用的
-
-<img src="https://tva1.sinaimg.cn/large/006y8mN6gy1g7t6di3i9oj30gg0g240w.jpg" style="height:300px" />
-
 
 
